@@ -1,0 +1,1 @@
+# SK-Thumbnail-Changer
